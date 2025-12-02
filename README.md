@@ -1,2 +1,2 @@
 # conflict
-Welcome to lpu
+Welcome to lpu family
